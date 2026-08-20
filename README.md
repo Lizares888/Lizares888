@@ -18,5 +18,6 @@ compliance checklists, governance documentation frameworks.
 
 Open to: AI Governance | AI Risk | AI Compliance roles
 
-🔗 LinkedIn: [посилання]
+🔗 LinkedIn: https://www.linkedin.com/in/oksana-maslianka
+
 🎷 Jazz • Travel • Art History
